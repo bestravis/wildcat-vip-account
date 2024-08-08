@@ -8,6 +8,14 @@ github 仓库
 
 ​	https://github.com/wuxingsanren/wildcat-vip-account
 
+
+
+最新网站
+
+​	https://yemao.one
+
+
+
 公众号
 
 ![image](https://cdn.dgsldz.com/product/wildcat/images/qrcode/wemp_wuxingsanren2.jpg)
